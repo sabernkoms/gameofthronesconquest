@@ -1,7 +1,7 @@
 # Rival Stars Horse Racing Hack 2019 Quartzes Generator 2019
 
 
-
+<a href="adres"><img src="https://mobiletiperz.com/wp-content/uploads/2019/04/rival-stars-horse-racing-hack-750x422.jpg" alt="rival stars hack"></a>
 
 
 Welcome, we are proud to annouce our newest online hack tool for Rival Stars Horse Racing. Grab some Coins and Energy in just two minutes. After many months of testing we finally discovered functioning script. Now you have perfect tool to hack the Coins and Energy. It features Anti-Ban protocol which makes whole proccess much safer. Build-in security makes our tool completly undetectable to the game system. Your devide doesn’t need to be rooted or jailbroke. That’s one of many features of the hack. For sure you will get your Coins and Energy in just few minutes after using our hack. Our tool is easy to use thanks to our simple interface.
